@@ -45,4 +45,4 @@ fostering improved workplace communication and thriving experiences.
 Extra Curricular Activities
 • IEEE Society: Actively engaged in the IEEE Society, collaborating with creative peers to cultivate innovative concepts in emerging technology.
 • Table Tennis-Engaged as a member of the university Table Tennis club, refining skills and fostering camaraderie through competitive play.
-• Swimming Water Surfing: Active participant in the swimming and water surfing club, further developing aquatic skills and enjoying outdoor activities.# readme
+• Swimming Water Surfing: Active participant in the swimming and water surfing club, further developing aquatic skills and enjoying outdoor activities.
